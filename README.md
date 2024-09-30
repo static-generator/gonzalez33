@@ -17,3 +17,15 @@
 
 ![download](https://github.com/user-attachments/assets/719989be-ab15-4ccb-97e8-d651f37b2a78)
 
+## My favorite food:
+
+![download](https://github.com/user-attachments/assets/920113a3-a231-48bd-9824-839c1843ba5f)
+
+## Dream hooping outfit:
+
+![download](https://github.com/user-attachments/assets/2b016671-c50c-4d9c-82c7-2eec8864d489)
+![download](https://github.com/user-attachments/assets/88347469-9af5-4f89-bcd0-e72e6fc940bf)
+![download](https://github.com/user-attachments/assets/940c278f-f358-4aab-a69b-7ece047d7132)
+![download](https://github.com/user-attachments/assets/a5a35e5f-8551-4ea1-a845-45f72da2d053)
+![download](https://github.com/user-attachments/assets/847cf1b5-bc54-4813-b726-dd32b3e1151d)
+![download](https://github.com/user-attachments/assets/3bd3b086-4d78-47c2-b6d9-1eb950fbd749)
