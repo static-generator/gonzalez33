@@ -9,7 +9,9 @@
 3. Eating
 
 ## My favorite basketball player:
-![afe238054a19b74c27a08fe4412faa36](https://github.com/user-attachments/assets/a3d332de-4b1b-498e-aae1-25dc3d3f9556)
+
+![download](https://github.com/user-attachments/assets/6f5fbd5c-bdad-4130-b0ff-e543d75d1325)
+
 
 ## My dream bike:
 
