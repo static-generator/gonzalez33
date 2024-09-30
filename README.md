@@ -13,4 +13,5 @@
 
 ## My dream bike:
 
-![download](https://github.com/user-attachments/assets/a9f8319e-55ba-4f32-85c6-ef8e3c60d201)
+![download](https://github.com/user-attachments/assets/719989be-ab15-4ccb-97e8-d651f37b2a78)
+
